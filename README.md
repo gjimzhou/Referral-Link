@@ -9,13 +9,9 @@ American Express Gold Card http://refer.amex.us/JUNLIZ9C3N?XLINK=MYCP
 
 Platinum Card http://refer.amex.us/JUNLIZdKaZ?XLINK=MYCP
 
-Platinum Card for Charles Schwab http://refer.amex.us/JUNLIZD4un?XLINK=MYCP
-
 Delta SkyMiles Gold Card http://refer.amex.us/JUNLIZKv2P?XLINK=MYCP
 
 Bonvoy Brilliant Amex Card http://refer.amex.us/JUNLIZa5BG?XLINK=MYCP
-
-Bonvoy Amex Card http://refer.amex.us/JUNLIZlv1c?XLINK=MYCP
 
 ### Discover
 
