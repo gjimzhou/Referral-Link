@@ -55,7 +55,7 @@ https://join.robinhood.com/junliaz1
 
 ### Webull
 
-https://act.webull.com/i/BTYk8SBRWZJO/d7e/
+https://act.webull.com/i/BTYk8SBRWZJO/d7e
 
 
 ## Cashback Portal
@@ -83,3 +83,22 @@ https://www.rebatesme.com/r/gjirU266c5
 ### GivingAssitant
 
 https://givingassistant.org/?rid=BwUzShDse5
+
+## Lifestyle
+
+### Uber
+
+https://www.uber.com/invite/junliangz3ue
+
+### Lyft
+
+https://www.lyft.com/i/JUNLIANG51999
+
+### DoorDash
+
+https://drd.sh/AdwvKV
+
+### Chowbus
+
+https://goo.gl/sTS1DN Code: D2AD70F7
+
