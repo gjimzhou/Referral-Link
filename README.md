@@ -94,6 +94,10 @@ https://www.lyft.com/i/JUNLIANG51999
 
 https://www.seamless.com/referral/e56faf80-8777-11e8-b42f-05e30448def6
 
+### UberEats
+
+http://ubr.to/EatsGiveGet Code: eats-junliangz3ue
+
 ### DoorDash
 
 https://drd.sh/AdwvKV
