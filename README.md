@@ -32,7 +32,7 @@ https://accounts.chase.com/raf/share/2532690589
 
 ### HSBC
 
-https://www.us.hsbc.com/checking-accounts/campaigns/premier-offer/ Code: S014989473
+https://www.us.hsbc.com/checking-accounts/campaigns/premier-offer Code: S014989473
 
 ### Chime
 
