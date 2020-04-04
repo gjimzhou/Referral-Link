@@ -30,6 +30,10 @@ Chase Freedom Credit Card https://www.referyourchasecard.com/2f/3PS84U1NPP
 
 https://accounts.chase.com/raf/share/2532690589
 
+### HSBC
+
+https://www.us.hsbc.com/checking-accounts/campaigns/premier-offer/ Code: S014989473
+
 ### Chime
 
 https://member.chime.com/join/junliangzhou
