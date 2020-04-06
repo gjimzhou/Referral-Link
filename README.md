@@ -88,6 +88,11 @@ https://www.rebatesme.com/r/gjirU266c5
 
 https://givingassistant.org/?rid=BwUzShDse5
 
+### Mr Rebates
+
+http://www.mrrebates.com?refid=1206444
+
+
 ## Lifestyle
 
 ### Uber
