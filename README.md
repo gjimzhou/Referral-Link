@@ -5,9 +5,9 @@
 
 ### American Express
 
-American Express Gold Card http://refer.amex.us/JUNLIZ9C3N?XLINK=MYCP
-
 Platinum Card http://refer.amex.us/JUNLIZdKaZ?XLINK=MYCP
+
+American Express Gold Card http://refer.amex.us/JUNLIZ9C3N?XLINK=MYCP
 
 Delta SkyMiles Gold Card http://refer.amex.us/JUNLIZKv2P?XLINK=MYCP
 
