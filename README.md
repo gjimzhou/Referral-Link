@@ -5,13 +5,13 @@
 
 ### American Express
 
-Platinum Card http://refer.amex.us/JUNLIZdKaZ?XLINK=MYCP
+Platinum Card http://refer.amex.us/JUNLIZZpq8?xl=cp01
 
-American Express Gold Card http://refer.amex.us/JUNLIZ9C3N?XLINK=MYCP
+American Express Gold Card http://refer.amex.us/JUNLIZvNoX?xl=cp01
 
-Delta SkyMiles Gold Card http://refer.amex.us/JUNLIZKv2P?XLINK=MYCP
+Delta SkyMiles Gold Card http://refer.amex.us/JUNLIZtXDn?xl=cp01
 
-Bonvoy Brilliant Amex Card http://refer.amex.us/JUNLIZa5BG?XLINK=MYCP
+Bonvoy Brilliant Amex Card http://refer.amex.us/JUNLIZDRnx?xl=cp01
 
 ### Discover
 
