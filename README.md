@@ -19,9 +19,9 @@ Discover It https://refer.discover.com/s/JUNLIANG0
 
 ### Chase
 
-Chase Sapphire Preferred Credit Card https://www.referyourchasecard.com/6a/HR5DWTL8II
+Chase Sapphire Preferred Credit Card https://www.referyourchasecard.com/6a/Q4TT5QWRAI
 
-Chase Freedom Credit Card https://www.referyourchasecard.com/2f/3PS84U1NPP
+Chase Freedom Unlimited Credit Card https://www.referyourchasecard.com/18/0U2X1UPW19
 
 
 ## Bank Account
