@@ -130,3 +130,6 @@ https://refer.freshdirect.com/s/shylashilan
 
 https://inst.cr/t/c0ZSY2NJMzBP
 
+### Yamibuy
+
+https://customer.yamibuy.com/account/register?invite_code=790517
