@@ -45,6 +45,10 @@ https://member.chime.com/join/junliangzhou
 
 http://refer.varomoney.com/MvFls
 
+### Yotta Savings
+
+https://withyotta.page.link/ZgkJvc9X4AL2hN916 Code: JUNLIANG1
+
 
 ## Brokerage Account
 
