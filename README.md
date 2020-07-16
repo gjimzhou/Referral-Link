@@ -49,6 +49,10 @@ http://refer.varomoney.com/MvFls
 
 https://withyotta.page.link/ZgkJvc9X4AL2hN916 Code: JUNLIANG1
 
+### eToro
+
+https://etoro.tw/2Wqytfc
+
 
 ## Brokerage Account
 
