@@ -8,7 +8,7 @@ https://ts.la/junliang38239
 
 ### American Express
 
-Platinum Card http://refer.amex.us/JUNLIZZpq8?xl=cp01
+Platinum Card http://refer.amex.us/JUNLIZiwxs?xl=cp33
 
 American Express Gold Card http://refer.amex.us/JUNLIZvNoX?xl=cp01
 
