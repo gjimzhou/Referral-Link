@@ -10,7 +10,7 @@ https://ts.la/junliang38239
 
 Platinum Card http://refer.amex.us/JUNLIZiwxs?xl=cp33
 
-American Express Gold Card http://refer.amex.us/JUNLIZvNoX?xl=cp01
+American Express Gold Card http://refer.amex.us/JUNLIZQLkr?xl=cp33
 
 Delta SkyMiles Gold Card http://refer.amex.us/JUNLIZtXDn?xl=cp01
 
