@@ -41,10 +41,6 @@ https://www.us.hsbc.com/checking-accounts/campaigns/premier-offer Code: S0149894
 
 https://member.chime.com/join/junliangzhou
 
-### Varo Money
-
-http://refer.varomoney.com/MvFls
-
 ### Yotta Savings
 
 https://withyotta.page.link/ZgkJvc9X4AL2hN916 Code: JUNLIANG1
