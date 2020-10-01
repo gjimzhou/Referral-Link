@@ -139,3 +139,8 @@ https://customer.yamibuy.com/account/register?invite_code=790517
 ### Farfetch
 
 https://farfetch.mention-me.com/m/ol/ry6yp-jim-zhou
+
+### WineBid
+
+https://www.winebid.com/raf/puexkqolpp
+
