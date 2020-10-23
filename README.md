@@ -62,7 +62,7 @@ https://join.robinhood.com/junliaz1
 
 ### Webull
 
-https://act.webull.com/i/BTYk8SBRWZJO/d7e
+https://act.webull.com/vt/BTYk8SBRWZJO/rku/inviteUs
 
 ### Moomoo (FUTU)
 
