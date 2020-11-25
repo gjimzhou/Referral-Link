@@ -8,13 +8,13 @@ https://ts.la/junliang38239
 
 ### American Express
 
-Platinum Card http://refer.amex.us/JUNLIZiwxs?xl=cp33
+Platinum Card http://refer.amex.us/JUNLIZ74CX?xl=cp33
 
-American Express Gold Card http://refer.amex.us/JUNLIZQLkr?xl=cp33
+American Express Gold Card http://refer.amex.us/JUNLIZHF1W?xl=cp33
 
-Delta SkyMiles Gold Card http://refer.amex.us/JUNLIZtXDn?xl=cp01
+Delta SkyMiles Gold Card http://refer.amex.us/JUNLIZGbZl?xl=cp33
 
-Bonvoy Brilliant Amex Card http://refer.amex.us/JUNLIZDRnx?xl=cp01
+Bonvoy Brilliant Amex Card http://refer.amex.us/JUNLIZZckT?xl=cp33
 
 ### Discover
 
