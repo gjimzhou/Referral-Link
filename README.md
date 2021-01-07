@@ -24,9 +24,9 @@ Discover It https://refer.discover.com/s/JUNLIANG0
 
 ### Chase
 
-Chase Freedom Flex Credit Card https://www.referyourchasecard.com/18f/K36H6Y4Y5T
+Chase Freedom Flex Credit Card https://www.referyourchasecard.com/18/7ME0AOCRTD
 
-Chase Freedom Unlimited Credit Card https://www.referyourchasecard.com/18f/K36H6Y4Y5T
+Chase Freedom Unlimited Credit Card https://www.referyourchasecard.com/18/7ME0AOCRTD
 
 
 ## Bank Account
