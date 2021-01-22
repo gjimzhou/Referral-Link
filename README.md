@@ -66,10 +66,13 @@ https://join.robinhood.com/junliaz1
 
 https://act.webull.com/on/BTYk8SBRWZJO/g0d/inviteUs
 
-### Moomoo (FUTU)
+### FUTU Moomoo
 
 https://j.moomoo.com/001mRZ
 
+### Tiger TadeUp
+
+https://tradeup.marsco.com/activity/forapp/invite/?lang=zh_CN&skin=1&invite=9LJ28V#/
 
 ## Cashback Portal
 
@@ -144,15 +147,7 @@ https://inst.cr/t/c0ZSY2NJMzBP
 
 https://customer.yamibuy.com/account/register?invite_code=790517
 
-### Farfetch
+### Home Chef
 
-https://farfetch.mention-me.com/m/ol/ry6yp-jim-zhou
-
-### WineBid
-
-https://www.winebid.com/raf/puexkqolpp
-
-### HSN
-
-https://refer.hsn.com/Junliang
+https://www.homechef.com/invite/junliangz32
 
