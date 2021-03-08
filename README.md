@@ -10,7 +10,7 @@ https://ts.la/junliang38239
 
 Platinum Card http://refer.amex.us/JUNLIZvsI7?XLINK=MYCP
 
-American Express Gold Card http://refer.amex.us/JUNLIZzSGG?XLINK=MYCP
+American Express Gold Card http://refer.amex.us/JUNLIZBljA?XLINK=MYCP
 
 Gold Delta SkyMiles Card http://refer.amex.us/JUNLIZo01c?XLINK=MYCP
 
