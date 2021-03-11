@@ -14,7 +14,7 @@ American Express Gold Card http://refer.amex.us/JUNLIZYZPF?XLINK=MYCP
 
 Green Card http://refer.amex.us/JUNLIZg5oC?XLINK=MYCP
 
-Gold Delta SkyMiles Card http://refer.amex.us/JUNLIZo01c?XLINK=MYCP
+Gold Delta SkyMiles Card http://refer.amex.us/JUNLIZSU1N?xl=cp19
 
 Bonvoy Brilliant Card http://refer.amex.us/JUNLIZMYlo?XLINK=MYCP
 
