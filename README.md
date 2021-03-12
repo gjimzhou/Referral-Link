@@ -8,17 +8,17 @@ https://ts.la/junliang38239
 
 ### American Express
 
-Platinum Card http://refer.amex.us/JUNLIZBDj2?XLINK=MYCP
+Platinum Card http://refer.amex.us/JUNLIZBG4s?xl=cp19
 
-American Express Gold Card http://refer.amex.us/JUNLIZYZPF?XLINK=MYCP
+Gold Card http://refer.amex.us/JUNLIZeZOx?xl=cp19
 
-Green Card http://refer.amex.us/JUNLIZg5oC?XLINK=MYCP
+Green Card http://refer.amex.us/JUNLIZmBek?xl=cp19
 
 Gold Delta SkyMiles Card http://refer.amex.us/JUNLIZSU1N?xl=cp19
 
-Bonvoy Brilliant Card http://refer.amex.us/JUNLIZMYlo?XLINK=MYCP
+Bonvoy Brilliant Card http://refer.amex.us/JUNLIZgbCw?xl=cp19
 
-Hilton Suprass Card http://refer.amex.us/JUNLIZbD6z?XLINK=MYCP
+Hilton Suprass Card http://refer.amex.us/JUNLIZ71It?xl=cp19
 
 ### Discover
 
