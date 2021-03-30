@@ -10,7 +10,7 @@ https://ts.la/junliang38239
 
 Platinum Card http://refer.amex.us/JUNLIZBG4s?xl=cp19
 
-Gold Card http://refer.amex.us/JUNLIZeZOx?xl=cp19
+Gold Card http://refer.amex.us/JUNLIZBG4s?xl=cp19
 
 Green Card http://refer.amex.us/JUNLIZmBek?xl=cp19
 
