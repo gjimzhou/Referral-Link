@@ -42,9 +42,9 @@ https://accounts.chase.com/raf/share/2532690589
 
 https://www.sofi.com/invite/money?gcp=61981072-0794-4cba-bf72-47d7f63cc833
 
-### eToro
+### Aspiration
 
-https://etoro.tw/2Wqytfc
+https://my.aspiration.com/app/token/referral/3JFH21IS8NMBD30L
 
 
 ## Brokerage Account
