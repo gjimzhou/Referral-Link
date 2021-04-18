@@ -4,6 +4,7 @@
 
 https://ts.la/junliang38239
 
+
 ## Credit Card
 
 ### American Express
@@ -37,17 +38,9 @@ Chase Freedom Unlimited Credit Card https://www.referyourchasecard.com/18/7ME0AO
 
 https://accounts.chase.com/raf/share/2532690589
 
-### HSBC
+### SoFi
 
-https://www.us.hsbc.com/checking-accounts/campaigns/premier-offer Code: S014989473
-
-### Chime
-
-https://member.chime.com/join/junliangzhou
-
-### Yotta Savings
-
-https://withyotta.page.link/ZgkJvc9X4AL2hN916 Code: JUNLIANG1
+https://www.sofi.com/invite/money?gcp=61981072-0794-4cba-bf72-47d7f63cc833
 
 ### eToro
 
@@ -76,6 +69,7 @@ https://j.moomoo.com/001mRZ
 
 https://tradeup.marsco.com/activity/forapp/invite/?lang=zh_CN&skin=1&invite=9LJ28V#/
 
+
 ## Cashback Portal
 
 ### TopCashBack
@@ -90,10 +84,6 @@ https://www.rakuten.com/r/GJIMZH?eeid=28187
 
 https://www.gocashback.com/r/1775289
 
-### UseJewel
-
-http://usejewel.com/z/MtcdYcom
-
 ### RebatesMe
 
 https://www.rebatesme.com/r/gjirU266c5
@@ -105,51 +95,4 @@ https://givingassistant.org/?rid=BwUzShDse5
 ### Mr Rebates
 
 http://www.mrrebates.com?refid=1206444
-
-
-## Lifestyle
-
-### Uber
-
-https://www.uber.com/invite/junliangz3ue
-
-### Lyft
-
-https://www.lyft.com/i/JUNLIANG51999
-
-### Seamless (Grubhub)
-
-https://www.seamless.com/referral/e56faf80-8777-11e8-b42f-05e30448def6
-
-### UberEats
-
-http://ubr.to/EatsGiveGet Code: eats-junliangz3ue
-
-### DoorDash
-
-https://drd.sh/AdwvKV
-
-### Chowbus
-
-https://goo.gl/sTS1DN Code: D2AD70F7
-
-### GoldBelly
-
-https://www.talkable.com/x/12kAnY
-
-### FreshDirect
-
-https://refer.freshdirect.com/s/gjimzhou
-
-### Instacart
-
-https://inst.cr/t/c0ZSY2NJMzBP
-
-### Yamibuy
-
-https://customer.yamibuy.com/account/register?invite_code=790517
-
-### Home Chef
-
-https://www.homechef.com/invite/junliangz32
 
