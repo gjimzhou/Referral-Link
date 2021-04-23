@@ -15,6 +15,8 @@ Gold Card http://refer.amex.us/JUNLIZBG4s?xl=cp19
 
 Green Card http://refer.amex.us/JUNLIZmBek?xl=cp19
 
+EveryDay Preferred http://refer.amex.us/JUNLIZkBG8?xl=cp19
+
 Gold Delta SkyMiles Card http://refer.amex.us/JUNLIZSU1N?xl=cp19
 
 Bonvoy Brilliant Card http://refer.amex.us/JUNLIZgbCw?xl=cp19
