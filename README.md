@@ -21,7 +21,7 @@ Gold Delta SkyMiles Card http://refer.amex.us/JUNLIZSU1N?xl=cp19
 
 Bonvoy Brilliant Card http://refer.amex.us/JUNLIZgbCw?xl=cp19
 
-Hilton Suprass Card http://refer.amex.us/JUNLIZ71It?xl=cp19
+Hilton Suprass Card http://refer.amex.us/JUNLIZnEPo?xl=cp19
 
 ### Discover
 
