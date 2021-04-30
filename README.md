@@ -9,7 +9,7 @@ https://ts.la/junliang38239
 
 ### American Express
 
-Platinum Card http://refer.amex.us/JUNLIZBG4s?xl=cp19
+Platinum Card http://refer.amex.us/JUNLIZ3EUh?XL=MIMCP
 
 Gold Card http://refer.amex.us/JUNLIZBG4s?xl=cp19
 
