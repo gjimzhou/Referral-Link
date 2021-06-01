@@ -9,11 +9,11 @@ https://ts.la/junliang38239
 
 ### American Express
 
-Platinum Card http://refer.amex.us/JUNLIZvsI7?XLINK=MYCP
+Platinum Card http://refer.amex.us/JUNLIZr71R?xl=cpzz5
 
-Gold Card http://refer.amex.us/JUNLIZvsI7?XLINK=MYCP
+Gold Card http://refer.amex.us/JUNLIZ3nZt?xl=cpzz5
 
-Green Card http://refer.amex.us/JUNLIZwQbA?XLINK=MYCP
+Green Card http://refer.amex.us/JUNLIZ3nZt?xl=cpzz5
 
 EveryDay Preferred Card http://refer.amex.us/JUNLIZlpOk?XLINK=MYCP
 
