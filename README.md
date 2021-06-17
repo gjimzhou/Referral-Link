@@ -17,7 +17,7 @@ Green Card http://refer.amex.us/JUNLIZ3nZt?xl=cpzz5
 
 EveryDay Preferred Card http://refer.amex.us/JUNLIZlpOk?XLINK=MYCP
 
-Delta SkyMiles Gold Card http://refer.amex.us/JUNLIZw4IZ?XLINK=MYCP
+Delta SkyMiles Platinum Card http://refer.amex.us/JUNLIZYePP?XLINK=MYCP
 
 Marriott Bonvoy Brilliant Card http://refer.amex.us/JUNLIZnS8f?xl=cp19
 
