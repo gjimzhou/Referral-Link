@@ -9,15 +9,15 @@ https://ts.la/junliang38239
 
 ### American Express
 
-Platinum Card http://refer.amex.us/JUNLIZr71R?xl=cpzz5
+Platinum Card http://refer.amex.us/JUNLIZhPQg?xl=cp19
 
-Gold Card http://refer.amex.us/JUNLIZ3nZt?xl=cpzz5
+Gold Card http://refer.amex.us/JUNLIZ5iAI?xl=cp19
 
-Green Card http://refer.amex.us/JUNLIZ3nZt?xl=cpzz5
+Green Card http://refer.amex.us/JUNLIZ5iAI?xl=cp19
 
-EveryDay Preferred Card http://refer.amex.us/JUNLIZlpOk?XLINK=MYCP
+EveryDay Preferred Card http://refer.amex.us/JUNLIZLlIN?xl=cp19
 
-Delta SkyMiles Platinum Card http://refer.amex.us/JUNLIZYePP?XLINK=MYCP
+Delta SkyMiles Platinum Card http://refer.amex.us/JUNLIZrpPC?xl=cp19
 
 Marriott Bonvoy Brilliant Card http://refer.amex.us/JUNLIZnS8f?xl=cp19
 
