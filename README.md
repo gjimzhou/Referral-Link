@@ -9,9 +9,9 @@ https://ts.la/junliang38239
 
 ### American Express
 
-Platinum Card http://refer.amex.us/JUNLIZhPQg?xl=cp19
+Platinum Card http://refer.amex.us/JUNLIZ5iAI?xl=cp19
 
-Gold Card http://refer.amex.us/JUNLIZ5iAI?xl=cp19
+Gold Card http://refer.amex.us/JUNLIZLlIN?xl=cp19
 
 Green Card http://refer.amex.us/JUNLIZ5iAI?xl=cp19
 
