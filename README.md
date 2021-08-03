@@ -31,9 +31,9 @@ Discover It https://refer.discover.com/s/JUNLIANG0
 
 Chase United Explorer Credit Card https://www.referyourchasecard.com/215f/NKE0UM6U1C
 
-Chase Freedom Flex Credit Card https://www.referyourchasecard.com/18/7ME0AOCRTD
+Chase Freedom Flex Credit Card https://www.referyourchasecard.com/18g/896BTTYXVF
 
-Chase Freedom Unlimited Credit Card https://www.referyourchasecard.com/18/7ME0AOCRTD
+Chase Freedom Unlimited Credit Card https://www.referyourchasecard.com/18g/896BTTYXVF
 
 
 ## Bank Account
@@ -49,14 +49,6 @@ https://get.venmo.com/MYsadZPLxfb
 ### SoFi
 
 https://www.sofi.com/invite/money?gcp=61981072-0794-4cba-bf72-47d7f63cc833
-
-### Aspiration
-
-https://my.aspiration.com/app/token/referral/3JFH21IS8NMBD30L
-
-### Porte 3% APY
-
-https://portebanking.app.link/igYyAtCC5gb.
 
 
 ## Brokerage Account
