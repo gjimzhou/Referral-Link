@@ -25,7 +25,7 @@ Hilton Honors Suprass Card http://refer.amex.us/JUNLIZB2to?xl=cp19
 
 ### Discover
 
-Discover It https://refer.discover.com/s/JUNLIANG0
+Discover It https://refer.discover.com/s/JUNLIANG14
 
 ### Chase
 
