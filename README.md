@@ -46,10 +46,6 @@ https://accounts.chase.com/raf/share/2532690589
 
 https://get.venmo.com/MYsadZPLxfb
 
-### SoFi
-
-https://www.sofi.com/invite/money?gcp=61981072-0794-4cba-bf72-47d7f63cc833
-
 
 ## Brokerage Account
 
@@ -72,14 +68,6 @@ https://j.moomoo.com/001mRZ
 ### Tiger TadeUp
 
 https://tradeup.marsco.com/activity/forapp/invite/?lang=zh_CN&skin=1&invite=9LJ28V#/
-
-### Stash
-
-https://get.stash.com/junliang_6x2vsqs
-
-### Acorns
-
-https://share.acorns.com/Junliang
 
 
 ## Cashback Portal
