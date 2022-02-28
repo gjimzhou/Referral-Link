@@ -13,7 +13,7 @@ Platinum Card http://refer.amex.us/JUNLIZ58zS?xl=cp19
 
 Gold Card http://refer.amex.us/JUNLIZ7kr6?xl=cp19
 
-Green Card http://refer.amex.us/JUNLIZy93f?xl=cp19
+Green Card http://refer.amex.us/JUNLIZGO1v?xl=cp19
 
 EveryDay Preferred Card http://refer.amex.us/JUNLIZD1OG?xl=cp19
 
